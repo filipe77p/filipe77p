@@ -4,5 +4,5 @@ Computer Software Engineering student with experience in software development, Q
 
 ## Contact
 
-LinkedIn: https://linkedin.com/in/filipe_jose_pereira 
+LinkedIn: www.linkedin.com/in/filipe-jose-pereira
 Emial: filipepereirascp@gmail.com
